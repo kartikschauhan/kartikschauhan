@@ -23,7 +23,7 @@ I'm a passionate **Data Analyst** with a strong analytical mindset. I love worki
 </p>
 
 ## 🤝 Let's Connect!
-📧 **Email:** [kartik@example.com](mailto:kartik@example.com) 📩  
+📧 **Email:** [kartik@example.com](mailto:kartikrajput4466@gmail.com) 📩  
 🔗 **LinkedIn:** [Kartik Singh Chauhan](https://www.linkedin.com/in/kartik-chauhan-linkdin/) 🤝  
 
 ### ⭐ Don't forget to star my projects if you find them useful! 🚀
